@@ -20,7 +20,7 @@ Dein E-Book steht nun zum Download bereit. Bitte lade es jetzt herunter und spei
 
 Wenn du Bonusmaterial versprochen bekommen hast, findest du es ebenfalls auf dieser Seite verlinkt – oder du bekommst es per E-Mail zugesandt.
 
-Solltest du Fragen oder Probleme haben, schreib uns jederzeit: tedddy65@gmail.com
+Solltest du Fragen oder Probleme haben, schreib uns jederzeit: Dreamland.Verband@gmail.com
 
 [Hier könnte dein Dreamland-Logo erscheinen]
 
