@@ -16,5 +16,8 @@ Wichtige Hinweise:
 •	• Wir empfehlen, eine Sicherheitskopie für Ihren persönlichen Gebrauch anzulegen.
 
 Impressum:
-Christian Gellert · Dreamland-Verlag · Berlin · Deutschland
+Christian Gellert · 
+Dreamland-Verlag · 
+Berlin · 
+Deutschland
 E-Mail: dreamland.verband@gmail.com
