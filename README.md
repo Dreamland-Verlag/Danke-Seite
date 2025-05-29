@@ -1,30 +1,20 @@
 # Danke-Seite
 
+Vielen Dank für deinen Kauf!
+Du hast erfolgreich ein digitales Produkt erworben.
+
+👉 Hier erscheint der Download-Link von Digistore24 nach dem Kauf.
+
+Jetzt herunterladen
+Hinweis:
+Es handelt sich um ein digitales Produkt. Ein Widerruf ist nach vollständigem Download nicht mehr möglich.
+Bei Problemen oder Fragen wende dich bitte an: dreamland.verband@gmail.com
 Impressum
 Christian Gellert
+Dreamland Verlag
 Segitzdamm 10
 10969 Berlin
 Deutschland
-
-Telefon: 0176 41495161
-E-Mail: Dreamland.Verband@gmail.com
-
-Umsatzsteuer: Angaben gemäß Kleinunternehmerregelung (§ 19 UStG)
-
-Verantwortlich für den Inhalt nach § 55 Abs. 2 RStV:
-Christian Gellert, [Adresse]
-Wichtiger Hinweis zur Rückgabe
-Es handelt sich um ein digitales Produkt. Nach vollständigem Download oder Zugriff besteht gemäß § 356 Abs. 5 BGB kein Widerrufsrecht.
-
-Bitte kontaktiere uns bei Fragen – wir helfen gerne weiter!
-Danke für deinen Kauf!
-Dein E-Book steht nun zum Download bereit. Bitte lade es jetzt herunter und speichere es sicher.
-
-Wenn du Bonusmaterial versprochen bekommen hast, findest du es ebenfalls auf dieser Seite verlinkt – oder du bekommst es per E-Mail zugesandt.
-
-Solltest du Fragen oder Probleme haben, schreib uns jederzeit: Dreamland.Verband@gmail.com
-
-
-[Hier könnte dein Dreamland-Logo erscheinen]
-
-Zum Shop: https://www.digistore24.com
+Telefon: +49 176 41495161
+E-Mail: dreamland.verband@gmail.com
+Umsatzsteuerbefreit nach §19 UStG
